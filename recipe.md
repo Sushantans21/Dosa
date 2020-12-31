@@ -1,0 +1,1 @@
+take dosa batter and put it on the thawa and add oil done!
